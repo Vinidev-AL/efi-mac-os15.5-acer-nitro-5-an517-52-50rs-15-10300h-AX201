@@ -1,0 +1,1 @@
+# efi-mac-os15.5-acer-nitro-5-an517-52-50rs-15-10300h-AX201
